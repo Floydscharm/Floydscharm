@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me anushreeoraon@gmail.com
-- 😄 Pronouns: Her
+- 😄 Pronouns: Her/She
 
 
 <!---
